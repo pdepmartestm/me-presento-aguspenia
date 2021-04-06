@@ -1,3 +1,4 @@
+![imagen]:(mia4.jpg)
 - 👋 Hola, soy Agustin Peña. 
 Legajo: 177.518-2
 Como hobbies tengo en su mayor parte hacer deportes, tambien juegos de pc.
